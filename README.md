@@ -1,1 +1,1 @@
-# theoretical-framework-
+hypothesis about time acceleration that eliminates singularities or time-reversals
